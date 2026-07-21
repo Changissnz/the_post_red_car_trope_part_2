@@ -1,6 +1,6 @@
 # The Post Red Car Trope Part 2
 
-The follow-up to the post red car trope story. 
+The follow-up to the post red car trope story, written by me, Richard Pham. 
 ---------------------------------------------------------------------------------
 
 It was the political messaging that caused the agitation. And it was kleptocratic practices by the 
